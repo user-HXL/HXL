@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @usr-HXL
+- 👋 Hi, I’m @user-HXL
 - 👀 I’m interested in game.
 - 🌱 I’m currently learning nothing.
 - 💞️ I’m looking to collaborate on xxx
